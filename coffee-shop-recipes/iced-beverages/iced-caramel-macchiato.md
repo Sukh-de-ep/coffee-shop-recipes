@@ -6,7 +6,7 @@
 
 - 2 shots espresso roast
 - 1 oz vanilla syrup
-- 3/4 cup of 2% milk
+- 3/4 cup of % milk
 - Ice to fill the glass
 - Caramel sauce
 
